@@ -14,3 +14,4 @@ today's thought
 3rd week
 4th piler
 5th gen
+6th sense
